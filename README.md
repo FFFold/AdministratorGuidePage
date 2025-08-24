@@ -4,3 +4,4 @@
 
 [导师评价网存档](https://fffold.github.io/RateMySupervisor_save/html/)
 
+[在线播放春日影](https://fffold.github.io/haruhikage/)
